@@ -14,8 +14,6 @@
 
 😄 **Pronouns:** [He/Him]
 
-⚡ **Fun Fact:** While I spend a lot of time crunching numbers and analyzing data, I also enjoy outdoor activities to balance out the screen time. It's all about finding the right data-life balance!
-
 ### Recent Learning Achievements
 
 I recently completed a rigorous data analytics bootcamp at Ironhack in December 2023, which I initially started in Octuber, 2023. This intensive program has been a transformative journey for me, equipping me with a solid foundation in various aspects of data analytics. The experience at Ironhack has been invaluable, providing me with both the technical skills and practical, hands-on experience needed to tackle real-world data challenges. I am excited to apply the knowledge and skills I've acquired in my future projects and professional endeavors.
