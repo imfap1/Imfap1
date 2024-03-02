@@ -10,7 +10,7 @@
 
 💬 **Ask Me About:** My journey in learning data analytics, the challenges I've faced, and the projects I've worked on. I'm always open to sharing insights and learning from others.
 
-📫 **How to Reach Me:** The best way to reach me is via email. You can also find me on [Linkedin](www.linkedin.com/in/imfap01) for professional networking.
+📫 **How to Reach Me:** The best way to reach me is via email. You can also find me on [Linkedin](https://www.linkedin.com/in/felix-antonio-perez) for professional networking.
 
 😄 **Pronouns:** [He/Him]
 
